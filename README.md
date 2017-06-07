@@ -1,0 +1,1 @@
+# luckyfuture.github.io
